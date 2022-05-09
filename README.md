@@ -1,6 +1,6 @@
 ![](https://bestanimations.com/uploads/gifs/1684669800kawaii-kitten-super-cute-pink-hearts-animated-gif-1.gif)
 # !Hola! 
-Mi nombre es Mara ( ˙꒳​˙ ), aunque me llaman maru, maruchan o la colo.
+Mi nombre es Mara ( ˙꒳​˙ ), aunque me dicen maru, maruchan o la colo.
 
 Nací y crecí en Buenos Aires, pero hace más de 1 año y 3 meses vine junto a mi familia a vivir a Bariloche.
 
