@@ -8,3 +8,4 @@ Soy estudiante de Ingeniería en Computación <(￣︶￣)> en la UNRN.
 
 
 *Si es posible, en el futuro me gustaría trabajar en algo relacionado a la astronomía* 
+![Badge](https://bit.ly/icom-badge)
