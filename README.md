@@ -4,7 +4,7 @@ Mi nombre es Mara (aunque me dicen maru, maruchan o la colo).
 
 Nací y crecí en Buenos Aires, pero hace más de 1 año y 3 meses vine junto a mi familia a vivir a Bariloche.
 
-Soy estudiante de Ingeniería en Computación <(￣︶￣)> en la UNRN.
+Soy estudiante de Ingeniería en Computación de la UNRN.
 
 ![](https://img1.picmix.com/output/stamp/thumb/2/6/9/3/1793962_eca17.gif)
 
