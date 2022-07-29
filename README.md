@@ -10,6 +10,6 @@ Soy estudiante de Ingeniería en Computación de la UNRN.
 
 *Si es posible, en el futuro me gustaría trabajar en algo relacionado a la astronomía* 
 
-![](https://tecnoartes.net/wordpress/wp-content/uploads/2013/02/hellokitty-space.gif)
+![](https://www.nydailynews.com/resizer/I6x9SRCHmutr7_0xP4fbEGsTv7k=/1200x630/filters:format(jpg):quality(70)/arc-anglerfish-arc2-prod-tronc.s3.amazonaws.com/public/EOIL5RRTPLVVVISXPI6VGQSVYI.jpg)
 
 ![Badge](https://bit.ly/icom-badge)
