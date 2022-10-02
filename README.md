@@ -2,7 +2,7 @@
 # ¡Hola! 
 Mi nombre es Mara
 
-Nací y crecí en Buenos Aires, pero hace más de 1 año y 3 meses vine junto a mi familia a vivir a Bariloche.
+Nací y crecí en Buenos Aires, pero hace más de 1 año vine junto a mi familia a vivir a Bariloche.
 
 Soy estudiante de Ingeniería en Computación de la UNRN.
 
