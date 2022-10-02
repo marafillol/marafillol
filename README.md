@@ -1,6 +1,6 @@
 ![](http://1.bp.blogspot.com/_5zA2NhifJMQ/TTuhHhMz4_I/AAAAAAAASg8/WsVuSskfpr0/s1600/6+%25282%2529.gif)
 # ¡Hola! 
-Mi nombre es Mara (aunque me dicen maru, maruchan o la colo).
+Mi nombre es Mara
 
 Nací y crecí en Buenos Aires, pero hace más de 1 año y 3 meses vine junto a mi familia a vivir a Bariloche.
 
