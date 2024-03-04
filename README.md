@@ -2,7 +2,9 @@
 # ¡Hola! 
 Mi nombre es Mara
 
-Nací y crecí en Buenos Aires, pero hace más de 1 año vine junto a mi familia a vivir a Bariloche.
+Mi cumpleaños es el 24 de mayo (2004) 🥳🎁
+
+Nací y crecí en Buenos Aires, pero ahora vivo junto con mi familia en Bariloche.
 
 Soy estudiante de Ingeniería en Computación de la UNRN.
 
