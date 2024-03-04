@@ -6,7 +6,7 @@ Mi cumpleaños es el 24 de mayo (2004) 🥳🎁
 
 Nací y crecí en Buenos Aires, pero ahora vivo junto con mi familia en Bariloche.
 
-Soy estudiante de Ingeniería en Computación de la UNRN.
+Soy estudiante de Ingeniería en Computación en la UNRN.
 
 ![](https://img1.picmix.com/output/stamp/thumb/2/6/9/3/1793962_eca17.gif)
 
